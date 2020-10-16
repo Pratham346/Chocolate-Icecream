@@ -1,0 +1,1 @@
+Cream, milk, sugar, coco power, chocolate, almonds, chocolate syrup. 

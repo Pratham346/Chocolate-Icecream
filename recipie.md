@@ -1,0 +1,1 @@
+Take cold cream, mix the cream with coco powder and sugar, stir it well, put it in a bowl and keep it in fridger for 7 to 8 hrs, and decorate it with some chocolate and almond :)
